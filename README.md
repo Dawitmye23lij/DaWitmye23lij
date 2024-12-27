@@ -6,4 +6,4 @@ Hi Everyone 👋 my name is Dawit Mulugeta and I'm ethiopian
 
 ⚡ Fun fact: I think I'm funy
 
-![Alt text](https://github.com/Dawitmye23lij/Dawitmye23lij/blob/main/githubphoto_2024-12-27_02-25-52.jpg)
+![Alt text](https://github.com/Dawitmye23lij/Dawitmye23lij/blob/main/photo_2024-12-27_03-27-42.jpg)
